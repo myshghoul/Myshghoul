@@ -11,4 +11,4 @@
 
 ★ ⠀ [straw](https://myshghoul.straw.page/)⠀ ⠀  ᯇ⠀ ⠀' ⠀ ⠀ ![image](https://github.com/user-attachments/assets/d14cad19-011e-4ccf-8012-d53c7d638869)
 . ⠀ ⠀◟ 天 ◝
-✧ ࿁ ˙⠀⠀⠀⋯⠀⠀ : ⠀ 𖹭 ⠀ ⠀ˊ [credit](https://hu.pinterest.com/Jean_ryt/) ˋ⠀![image](https://github.com/user-attachments/assets/823ff056-3a12-4428-9e4c-798d139ab6ae)
+✧ ࿁ ˙⠀⠀⠀⋯⠀⠀ : ⠀ 𖹭 ⠀ ⠀ˊˋ⠀![image](https://github.com/user-attachments/assets/823ff056-3a12-4428-9e4c-798d139ab6ae)
