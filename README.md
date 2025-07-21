@@ -1,6 +1,6 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20crew&color=586e8c&style=flat" alt="myshghoul" /> </p>
 
-[![image](https://github.com/user-attachments/assets/6328f2aa-67a0-49b5-b5ba-4a1dfa86896f)](https://i.pinimg.com/736x/bf/99/d6/bf99d67d0125b3abff29b23c4d366273.jpg)
+<img width="472" height="680" alt="image" src="https://github.com/user-attachments/assets/0dba1237-69a9-43bc-bc0f-05d06f1404e7" />
 
 
 ,⠀⸺⠀ㅤ Vin/Vinnieㅤ𐚁̷ .ㅤ⠀she ノ her⠀⠀◞ .
