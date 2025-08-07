@@ -1,6 +1,7 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20crew&color=586e8c&style=flat" alt="myshghoul" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20expendabels&color=586e8c&style=flat" alt="myshghoul" /> </p>
 
-<img width="472" height="680" alt="image" src="https://github.com/user-attachments/assets/0dba1237-69a9-43bc-bc0f-05d06f1404e7" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/28ff0937-e64b-42c1-b170-bb6d162b6ff9" />
+
 
 
 ,⠀⸺⠀ㅤ Vin/Vinnieㅤ𐚁̷ .ㅤ⠀she ノ her⠀⠀◞ .
