@@ -2,10 +2,8 @@
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9626a79c-db0b-4992-a872-4a4d7883ca2d" />
 
-
-,⠀⸺⠀ㅤ He is lying to you .ㅤ𐚁̷ .ㅤDo not trust adler. .?⠀⠀◞ .
+,⠀⸺⠀ㅤ He is lying to you .ㅤ𐚁̷ .ㅤDo not trust adler.⠀⠀◞ .
 ⠀♡⠀⠀.⠀ [straw.page](https://myshghoul.straw.page/)⠀ !⠀⠀𐪞⠀⠀14 !!⠀𑇛 ![image](https://github.com/user-attachments/assets/1ebd128f-7d30-4fec-9f76-5efbe073d7a5)
-⠀૮ ོ .• ༝ •. ོ𑁬
 ⠀⠀𐔌 、⠀she/her　︵︵　﹒⠀pansexual⠀⠀⠀月亮 
 
 
