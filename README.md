@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20antler's&color=586e8c&style=flat" alt="myshghoul" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20antler's&color=100B0F&style=flat" alt="myshghoul" /> </p>
 
 <img width="735" height="448" alt="image" src="https://github.com/user-attachments/assets/2ca13cc3-7b2e-42a9-b4a4-7bc91b6555f2" />
 
