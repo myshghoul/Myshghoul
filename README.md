@@ -1,6 +1,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20antler's&color=100B0F&style=flat" alt="myshghoul" /> </p>
 
-<img width="735" height="448" alt="image" src="https://github.com/user-attachments/assets/2ca13cc3-7b2e-42a9-b4a4-7bc91b6555f2" />
+<img width="735" height="603" alt="image" src="https://github.com/user-attachments/assets/740222db-12df-4de3-b414-b110859411fc" />
+
 
 ,⠀⸺⠀  . .ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it .⠀⠀◞ . I will either find a way or make one. ⠀.⠀ [Alt acc](https://github.com/GutsAndOne)⠀ !⠀⠀𐪞⠀⠀4teen !  、𐔌 、⠀she/her 、
 
