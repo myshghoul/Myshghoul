@@ -5,5 +5,5 @@
 
 ,⠀⸺⠀  . .ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it .⠀⠀◞ . I will either find a way or make one. ⠀.⠀ [Alt acc](https://github.com/GutsAndOne)⠀ !⠀⠀𐪞⠀⠀4teen !  、𐔌 、⠀she/her 、
 
-★ ⠀ .  over 20 - under 13 dni 、 ⠀. ⠀ ⠀◟ 天 ◝
- ![image2](https://github.com/user-attachments/assets/47fd1107-7681-44ce-8386-64352f5d9839)
+★ ⠀ .  over 20 - under 13 dni 、 ⠀. ⠀ ⠀◟  ![image2](https://github.com/user-attachments/assets/47fd1107-7681-44ce-8386-64352f5d9839)
+ ◝
