@@ -11,5 +11,5 @@
 
 !⠀⠀4teen  、⠀she/her
 ★ ⠀ .  over 20 - under 13 dni 
- ![tumblr_cad9653f240c2ce833b5d8a8456f9243_3e2a3b5c_75](https://github.com/user-attachments/assets/648a0416-75d9-40b2-9dec-28e5b93274bb)
+
 ![tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400](https://github.com/user-attachments/assets/a3c7303a-d090-45fc-bcfb-576e0adb5758)
