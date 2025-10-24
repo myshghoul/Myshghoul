@@ -12,4 +12,5 @@
 !⠀⠀4teen  、⠀she/her
 ★ ⠀ .  over 20 - under 13 dni 
 
-![tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400](https://github.com/user-attachments/assets/a3c7303a-d090-45fc-bcfb-576e0adb5758)
+  ![candle](https://github.com/user-attachments/assets/018b9232-56a8-4fc5-ab61-8d1efb9aa229)
+  ![tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400](https://github.com/user-attachments/assets/a3c7303a-d090-45fc-bcfb-576e0adb5758)
