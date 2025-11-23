@@ -1,5 +1,6 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Outlaws's&color=c80000&style=flat" alt="myshghoul" /> </p>
 
+<img width="736" height="944" alt="image" src="https://github.com/user-attachments/assets/1bc10148-6e25-410c-bf70-f805842a2b70" />
 
 
 
