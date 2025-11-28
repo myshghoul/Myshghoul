@@ -7,7 +7,8 @@
 
 
 , ⸺ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it.
-![spiral](https://github.com/user-attachments/assets/2182b84d-fb33-40f6-b5f4-2c3eaec81928)
+![fjw85a](https://github.com/user-attachments/assets/f958ec1a-087b-403c-8856-0c5accfb1315)
+
  [A](https://github.com/GutsAndOne)lt acc
 
 !⠀⠀4teen ⠀she/her
