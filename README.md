@@ -9,6 +9,10 @@
 , ⸺ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it.
 ![fjw85a](https://github.com/user-attachments/assets/f958ec1a-087b-403c-8856-0c5accfb1315)
 
+
+<img width="800" height="700" alt="Képernyőkép 2025-11-25 194129" src="https://github.com/user-attachments/assets/3aefb18b-c656-43c5-86d8-bfcc28f0231f" />
+
+
  [A](https://github.com/GutsAndOne)lt acc
 
 !⠀⠀4teen ⠀she/her
