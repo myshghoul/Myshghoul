@@ -13,8 +13,8 @@
 
 <img width="800" height="700" alt="Képernyőkép 2025-11-25 194129" src="https://github.com/user-attachments/assets/3aefb18b-c656-43c5-86d8-bfcc28f0231f" />
 
-                      I love my dad
-
+                                                I love my dad
+ 
  [A](https://github.com/GutsAndOne)lt acc
 
 !⠀⠀4teen ⠀she/her
