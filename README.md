@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=8A6642&style=flat" alt="myshghoul" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=F0F8FF&style=flat" alt="myshghoul" /> </p>
 
 
 
