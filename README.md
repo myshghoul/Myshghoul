@@ -7,7 +7,8 @@
 
 
 , ⸺ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it.
-![fjw85a](https://github.com/user-attachments/assets/f958ec1a-087b-403c-8856-0c5accfb1315)
+![ofhi30](https://github.com/user-attachments/assets/61c87973-59bc-41f7-87d1-2891c489c45f)
+
 
 
 <img width="800" height="700" alt="Képernyőkép 2025-11-25 194129" src="https://github.com/user-attachments/assets/3aefb18b-c656-43c5-86d8-bfcc28f0231f" />
