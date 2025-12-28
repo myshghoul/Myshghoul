@@ -1,24 +1,25 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=ba1100&style=flat" alt="myshghoul" /> </p>
-
-
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=73481f&style=flat" alt="myshghoul" /> </p>
 
 
 
 
 
 , ⸺ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it.
-![ofhi30](https://github.com/user-attachments/assets/61c87973-59bc-41f7-87d1-2891c489c45f)
+![cross2](https://github.com/user-attachments/assets/b50052cd-b7a2-4341-a19d-bfd817af9d7d)
 
 
 
-<img width="800" height="700" alt="Képernyőkép 2025-11-25 194129" src="https://github.com/user-attachments/assets/3aefb18b-c656-43c5-86d8-bfcc28f0231f" />
 
-                                                I love my dad
+
+![a351b6e3a9087334949311ce59329359](https://github.com/user-attachments/assets/b43dd39c-5e16-4966-93a9-761d5439ab70)
+
  
- [A](https://github.com/GutsAndOne)lt acc
+ [A](https://github.com/GutsAndOne)lt acc! 
+![spiral](https://github.com/user-attachments/assets/437b2a53-88d5-4ebc-a6f9-7271e20bbe6c)
 
-!⠀⠀4teen ⠀she/her
-★ ⠀ .  over 25 dni .
+
+
+!⠀⠀4teen ⠀she/her ⠀ .  over 25 dni .
 
   ![candle](https://github.com/user-attachments/assets/018b9232-56a8-4fc5-ab61-8d1efb9aa229)
   ![tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400](https://github.com/user-attachments/assets/a3c7303a-d090-45fc-bcfb-576e0adb5758)
