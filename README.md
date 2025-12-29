@@ -5,10 +5,6 @@
 
 
 , ⸺ㅤI let you know me, see me. I gave you a rare gift, but you didn’t want it.
-![cross2](https://github.com/user-attachments/assets/b50052cd-b7a2-4341-a19d-bfd817af9d7d)
-
-
-
 
 
 ![a351b6e3a9087334949311ce59329359](https://github.com/user-attachments/assets/b43dd39c-5e16-4966-93a9-761d5439ab70)
@@ -16,7 +12,6 @@
  
  [A](https://github.com/GutsAndOne)lt acc! 
 ![spiral](https://github.com/user-attachments/assets/437b2a53-88d5-4ebc-a6f9-7271e20bbe6c)
-
 
 
 !⠀⠀4teen ⠀she/her ⠀ .  over 25 dni .
