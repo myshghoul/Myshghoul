@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=8e2626&style=flat" alt="myshghoul" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=myshghoul&label=%20Jabbies's&color=5d431d&style=flat" alt="myshghoul" /> </p>
 
 
 
@@ -11,7 +11,8 @@
 
  
  [A](https://github.com/GutsAndOne)lt acc! 
-![spiral](https://github.com/user-attachments/assets/437b2a53-88d5-4ebc-a6f9-7271e20bbe6c)
+![weapon-gun2](https://github.com/user-attachments/assets/e3becf6a-42f2-4fb6-af6e-3346b2e8293f)
+
 
 
 !⠀⠀4teen ⠀she/her ⠀ .  over 25 dni .
