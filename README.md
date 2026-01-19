@@ -11,9 +11,8 @@
 
  
  [A](https://github.com/GutsAndOne)lt acc! 
-![weapon-gun2](https://github.com/user-attachments/assets/e3becf6a-42f2-4fb6-af6e-3346b2e8293f)
 
 
 
-!⠀⠀4teen ⠀she/her ⠀ .  over 25 dni .
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31igbq5abykyp4kykbtusmez6yjy&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=f1b0ce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   ![tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400](https://github.com/user-attachments/assets/a3c7303a-d090-45fc-bcfb-576e0adb5758)
