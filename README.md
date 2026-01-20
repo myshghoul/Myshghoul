@@ -10,7 +10,7 @@
 ⠀⠀⠀⠀⠀⠀<img width="400" height="500" alt="Untitled1_20260120002540" src="https://github.com/user-attachments/assets/1fa130ae-95df-4b48-8ad5-3f1198520f57" />
 
  
-⠀⠀⠀⠀⠀⠀ [A](https://github.com/GutsAndOne)lt acc! 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✮⠀ [A](https://github.com/GutsAndOne)lt acc! 
 
 
 
