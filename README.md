@@ -11,9 +11,8 @@
 ⠀<img width="500" height="600" alt="Untitled1_20260222141932" src="https://github.com/user-attachments/assets/e9aa39e0-788d-402a-ba96-01c8a992a6c4" />
 
 
-
  
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✮⠀ [A](https://github.com/GutsAndOne)lt acc! 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✮⠀ [A](https://github.com/GutsAndOne)lt acc! 
 
 
 ⠀⠀⠀⠀Do you believe you could change me, the way i've changed you?
