@@ -8,7 +8,7 @@
 
 ⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="300" height="300" alt="funny" src="https://github.com/user-attachments/assets/21d5f904-c24a-442e-941c-45333c9dca64" />
+⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀<img width="300" height="300" alt="funny" src="https://github.com/user-attachments/assets/21d5f904-c24a-442e-941c-45333c9dca64" />
 
 
 
