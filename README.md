@@ -3,7 +3,7 @@
    ${\textsf{\color{#ddac53}I let you know me, see me. I gave you a rare gift, but you didn’t want it.}}$ 
    
 
-⠀⠀⠀⠀⠀<img width="400" height="400" alt="Untitled1_20260412062718" src="https://github.com/user-attachments/assets/6985057a-05a4-4d8b-b23e-19b415d8f8c8" />
+⠀⠀⠀⠀⠀<img width="400" height="400" alt="Untitled1_20260711131538" src="https://github.com/user-attachments/assets/94fb3ce9-460e-422c-a46d-c3ed20238e94" />
 
 
 
