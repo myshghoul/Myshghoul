@@ -9,7 +9,8 @@
 
 
  
-⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀✮⠀ [A](https://github.com/GutsAndOne)lt acc! 
+⠀⠀⠀⠀⠀⠀⠀⠀ ⠀<img width="300" height="35" alt="ezgif-3-3348896d1b" src="https://github.com/user-attachments/assets/469b1d92-f2fe-4e2e-bf38-cc6892932e18" />
+ 
 
 
    ${\textsf{\color{#ddac53}Do you believe you could change me, the way i've changed you}}$ 
